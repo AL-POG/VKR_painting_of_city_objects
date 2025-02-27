@@ -1,0 +1,1 @@
+# VKR_painting_of_city_objects
